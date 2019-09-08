@@ -1,1 +1,1 @@
-Kush@kushgarg.com
+kushgarg.com
